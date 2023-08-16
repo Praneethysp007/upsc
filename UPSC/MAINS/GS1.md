@@ -3,4 +3,10 @@
      * RECONNASSIANCE 
      * EXPOLARTION
      * EXTRACTION OF MINERALS
+ - `EL NINO AND LA NINA`
+    * LA NINA is a favourable condition for india 
+    * ENSO phenomenon
+
 # HISTORY
+# ART AND CULTURE
+ - National manuscripts bill 2023
